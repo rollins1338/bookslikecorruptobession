@@ -7,5 +7,5 @@
 
 # ☛ Stories Added
 
-- [ ] [Germophobe](https://github.com/rollins1338/Germaphobe)
+- [x] [Germophobe](https://github.com/rollins1338/Germaphobe)
 - [ ] [Quarantine](https://github.com/rollins1338/quarantine/tree/main)
