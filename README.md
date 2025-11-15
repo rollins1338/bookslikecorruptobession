@@ -10,6 +10,7 @@
 - [x] [Germophobe](https://github.com/rollins1338/Germaphobe)
 - [x] [Quarantine](https://github.com/rollins1338/quarantine/tree/main)
 - [x] [LS](https://github.com/rollins1338/littlesister/tree/main)
+- [x] [Nick & Jay Duet](https://github.com/rollins1338/nickandjay)
 ---
 [simillar stuff](https://darkromancereads.com/book-genre/tropes/step-family/?orderby=popularity)
 ---
