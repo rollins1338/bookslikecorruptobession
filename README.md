@@ -5,11 +5,11 @@
 - [WEB OF SILENCE](https://github.com/rollins1338/Western-DarkRomance-and-Omegaverse/tree/main/Web%20of%20Silence%20(Duet))
 ---
 # prio [**These are all standalones. All SS DR. So really Similar to PossessingV**] >
-- germophobe.                    
-- sabotage.                     
-- wrath of an exile            
-- unhinged love.   
-- sicko.                      
+- [ ] germophobe.                    
+- [ ] sabotage.                     
+- [ ] wrath of an exile            
+- [ ] unhinged love.   
+- [ ] sicko.                      
                                
                                 
 # ☛ Stories Added 
