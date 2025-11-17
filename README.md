@@ -13,6 +13,7 @@
 - [ ] devious obsession [Audiobook Available]
 - [ ] hate me
 - [ ] ruthless empire [Audiobook Available]
+- [ ] bad intentions
 
 [**These are all standalones. All SS DR. So really Similar to PossessingV**]
 ---                                
