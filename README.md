@@ -16,6 +16,11 @@
 - [ ] bad intentions
 
 [**These are all standalones. All SS DR. So really Similar to PossessingV**]
+
+# not ss but similar 
+- [ ] That Sik Luv [Audiobook Available]
+- [ ] even if it hurts [Looking for AB]
+- [ ] surrender [Looking for AB]
 ---                                
 # ☛ Stories Added 
 
