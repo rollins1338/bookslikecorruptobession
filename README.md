@@ -5,8 +5,7 @@
 - [WEB OF SILENCE](https://github.com/rollins1338/Western-DarkRomance-and-Omegaverse/tree/main/Web%20of%20Silence%20(Duet))
 ---
 # Prio  >
-- [ ] germophobe                    
-- [ ] sabotage [Audiobook Available]                   
+- [ ] germophobe               
 - [ ] wrath of an exile [Audiobook Available]           
 - [ ] unhinged love   
 - [ ] sicko [Audiobook Available]
