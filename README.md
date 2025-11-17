@@ -14,8 +14,9 @@
 - [ ] hate me
 - [ ] ruthless empire [Audiobook Available]
 - [ ] bad intentions
+- [ ] torment duet [Audiobook Available]
 
-[**These are all standalones. All SS DR. So really Similar to PossessingV**]
+[**These are mostly standalones. All SS DR. So really Similar to PossessingV**]
 
 # not ss but similar 
 - [ ] That Sik Luv [Audiobook Available]
