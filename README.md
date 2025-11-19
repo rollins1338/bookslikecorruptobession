@@ -12,7 +12,6 @@
 - [ ] devious obsession [Audiobook Available]
 - [ ] hate me [Audiobook Available]
 - [ ] ruthless empire [Audiobook Available]
-- [ ] bad intentions
 - [ ] torment duet [Audiobook Available]
 
 [**These are mostly standalones. All SS DR. So really Similar to PossessingV**]
