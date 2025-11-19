@@ -10,7 +10,7 @@
 - [ ] unhinged love   
 - [ ] sicko [Audiobook Available]
 - [ ] devious obsession [Audiobook Available]
-- [ ] hate me
+- [ ] hate me [Audiobook Available]
 - [ ] ruthless empire [Audiobook Available]
 - [ ] bad intentions
 - [ ] torment duet [Audiobook Available]
