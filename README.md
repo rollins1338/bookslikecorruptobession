@@ -19,9 +19,9 @@
 
 # not ss but similar 
 - [ ] That Sik Luv [Audiobook Available]
-- [ ] even if it hurts [Looking for AB]
-- [ ] surrender [Looking for AB]
-- [ ] untouchable
+- [ ] even if it hurts [Audiobook Available]
+- [ ] surrender [Audiobook Available]
+- [ ] untouchable[No Audiobook]
 ---                                
 # ☛ Stories Added 
 
