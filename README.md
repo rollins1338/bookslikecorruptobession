@@ -7,7 +7,7 @@
 # Prio  >
 - [ ] germophobe               
 - [ ] wrath of an exile [Audiobook Available]           
-- [ ] unhinged love   
+- [ ] unhinged love [Audiobook release December 2nd]
 - [ ] sicko [Audiobook Available]
 - [ ] devious obsession [Audiobook Available]
 - [ ] hate me [Audiobook Available]
