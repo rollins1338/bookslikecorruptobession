@@ -7,21 +7,21 @@
 # Prio  >
 - [ ] germophobe
 - [ ] Contempt [Audiobook Available] (Coastal Elites #3)        
-- [ ] wrath of an exile [Audiobook Available]           
-- [ ] unhinged love [Audiobook release December 2nd]
-- [ ] sicko [Audiobook Available]
-- [ ] devious obsession [Audiobook Available]
-- [ ] hate me [Audiobook Available]
-- [ ] ruthless empire [Audiobook Available]
-- [ ] torment duet [Audiobook Available]
+- [ ] wrath of an exile [Audiobook Available] (River Styx Heathens #1)        
+- [ ] unhinged love [Audiobook release December 2nd] (Wicked Falls Elite #3)
+- [ ] sicko [Audiobook Available] (Sicko #1)
+- [ ] devious obsession [Audiobook Available] (Hockey Gods #2)
+- [ ] hate me [Audiobook Available] (Standalone)
+- [ ] ruthless empire [Audiobook Available] (Royal Elite #6)
+- [ ] Torment #1, #2 [Audiobook Available] (The Bleeding Hearts #1, #2)
 
 [**These are mostly standalones. All SS DR. So really Similar to PossessingV**]
 
 # not ss but similar 
-- [ ] That Sik Luv [Audiobook Available]
-- [ ] even if it hurts [Audiobook Available] (Coastal Elite #1)
-- [ ] surrender [Audiobook Available]
-- [ ] untouchable[No Audiobook]
+- [ ] That Sik Luv [Audiobook Available] (Standalone)
+- [ ] Even if it Hurts [Audiobook Available] (Coastal Elite #1)
+- [ ] Surrender [Audiobook Available] (Coastal Elites #4)
+- [ ] Untouchable[No Audiobook]
 ---                                
 # ☛ Stories Added 
 
