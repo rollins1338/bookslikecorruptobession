@@ -5,7 +5,8 @@
 - [WEB OF SILENCE](https://github.com/rollins1338/Western-DarkRomance-and-Omegaverse/tree/main/Web%20of%20Silence%20(Duet))
 ---
 # Prio  >
-- [ ] germophobe               
+- [ ] germophobe
+- [ ] Contempt [Audiobook Available] (Coastal Elites #3)        
 - [ ] wrath of an exile [Audiobook Available]           
 - [ ] unhinged love [Audiobook release December 2nd]
 - [ ] sicko [Audiobook Available]
@@ -18,7 +19,7 @@
 
 # not ss but similar 
 - [ ] That Sik Luv [Audiobook Available]
-- [ ] even if it hurts [Audiobook Available]
+- [ ] even if it hurts [Audiobook Available] (Coastal Elite #1)
 - [ ] surrender [Audiobook Available]
 - [ ] untouchable[No Audiobook]
 ---                                
