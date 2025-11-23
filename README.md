@@ -11,7 +11,6 @@
 - [ ] unhinged love [Audiobook release December 2nd] (Wicked Falls Elite #3)
 - [ ] sicko [Audiobook Available] (Sicko #1)
 - [ ] devious obsession [Audiobook Available] (Hockey Gods #2)
-- [ ] hate me [Audiobook Available] (Standalone)
 - [ ] ruthless empire [Audiobook Available] (Royal Elite #6)
 - [ ] Torment #1, #2 [Audiobook Available] (The Bleeding Hearts #1, #2)
 
