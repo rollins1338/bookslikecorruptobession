@@ -13,6 +13,7 @@
 - [ ] devious obsession [Audiobook Available] (Hockey Gods #2)
 - [ ] ruthless empire [Audiobook Available] (Royal Elite #6)
 - [ ] Torment #1, #2 [Audiobook Available] (The Bleeding Hearts #1, #2)
+- [ ]  Stepbrother Dearest [Audiobook Available] 
 
 [**These are mostly standalones. All SS DR. So really Similar to PossessingV**]
 
